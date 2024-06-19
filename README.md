@@ -9,7 +9,22 @@ oiii gente meu nome é ketlyn rezende e vim compartilhar um pouquinho de mim aqu
 
 - eu sou uma menina que gosta sempre de estar envolvida com algo relacionado ao mundo da arte
 -  eu amo moda e tudo relacionado a ela e pretendo fazer faculdade disso
+
+   <img src="https://media.tenor.com/quTfIiWenpIAAAAM/turkish-designers-runway.gif" width="250">
+ 
+   **ESTILOOO**
+
+  
 -  eu amo cantar e tenho algumas musicas compostas por mim e quero gravar elas um dia quem sabe
+
+    <img src="https://media.tenor.com/J_UnUxeWU7IAAAAM/hairflip-singing.gif" width="230">
+
+
+     
+
+
+
+    
 - fiz 3 anos de ginastica artistica e quando era pequena fiz bale tambem
 
      <img src="https://media1.tenor.com/m/blUOW0bxMfEAAAAC/ballet.gif " width="250">
